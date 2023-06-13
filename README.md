@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kitopvibe1
+- 👋 Hi, I’m Kit
  
 - Ai & machine learning💻🧑‍💻
 
