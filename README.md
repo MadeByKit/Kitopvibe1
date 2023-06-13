@@ -1,6 +1,15 @@
 - 👋 Hi, I’m @Kitopvibe1
-- 👀 I’m interested in learning and improving my skills on phishing, Hacking, deep fakes and cyber security
-- 🌱 I’m currently learning Python
+- Ai & machine learning💻🧑‍💻
+
+IT support specialist,
+
+Deepfake expert,
+
+Tech manipulator,
+
+Highly spiritual,
+
+NOT A YAHOO BOY❌❌
 
 <!---
 Kitopvibe1/Kitopvibe1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
