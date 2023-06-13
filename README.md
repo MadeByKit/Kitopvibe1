@@ -1,15 +1,13 @@
 - 👋 Hi, I’m @Kitopvibe1
 - Ai & machine learning💻🧑‍💻
 
-IT support specialist,
+IT support specialist
 
-Deepfake expert,
+Deepfake expert
 
-Tech manipulator,
+Tech manipulator
 
-Highly spiritual,
-
-NOT A YAHOO BOY❌❌
+Highly spiritual
 
 <!---
 Kitopvibe1/Kitopvibe1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
